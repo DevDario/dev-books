@@ -53,7 +53,7 @@ Happy reading and happy coding!
 ![Opened issues](https://img.shields.io/github/issues/free-educa/books.svg)
 ![Closed issues](https://img.shields.io/github/issues-closed/free-educa/books.svg)
 ![Opened PR's](https://img.shields.io/github/issues-pr/free-educa/books.svg)
-![Closed PR's](https://img.shields.io/github/issues-pr-closed/free-educa/books.svg)
+![Closed PR's](https://img.shields.io/github/issues-pr-closed/free-educa/books.svg)lkmslmlsmlslslkmlkskskn,smns,mksns  ,slknksnkslsosks k,s smn ksknmkmmsj smlksmnjkdnsmkjsb, lslmk i,msnjkjdj,dkmksnksjdmkmsnjabmsdkjnsjmkmams maslasmksanmamaskm,aksnas,n,la,nm,a amalalsk aa.lkamsknmaknas.las,sk kambcasmcas,kasm aslas,kasndkasnmasa,kmjd nasmd ,aksm,aksndaksbndakasihndasib njsdnasj nmasj,masmd ask,asndkjsjdbskfnsdnm dkf sldfls kjf, kdfkngdfksngdf,mmdf d,fgdfm fg df  dfkgndfndfn,dkfbgjkdf fkgndk fdmd,,flfv fdlvmf kf f,dfm fdngdfkkdf,fdkg df,gm flg,fdsf,gmdf, lfkmgdf glfmfigfd,, offldgmfd ifs.dgv,fdml fofgdlgnl,f.;lfsd,mgks gf,g,v,dfg,lk,fpgf,d;gfgdf.g,.fdgdlfmg.,df.lfdg,dfl gdfl k,fkg.dfldmkfdjfd,mgdf, fldogmkdklfmsdln,fg,lgmdkfngm/ h;fd,,;,h;fgth,jmfghmfh;fgl;g.jg;j,flghjf.gh.fg.hjl;f fgohmfg.mf.h.fg.jm.lghlgfjlf c,vbdlxvb mclgvmbc, .gh fkh fglho,ghfg,hjl;gh gf,j,glgl,dlg,fdlh dh,glkhf.g h;fl;gkh.fg l,gfhghgghg.,g.fghf. h..gfhf,hh,fg.h,.gh,fg,j ghgffog.lghfghfglj,.fg,dhdfh/g..lhfg.hfg;h,g,f
 
 <br>
 
